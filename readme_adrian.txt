@@ -1,2 +1,2 @@
 biticacoin
-milionar in biticacoin
+miliardar in biticacoin
